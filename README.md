@@ -1,5 +1,5 @@
 - 👋 Hello, I'm Bernd-, Bernd Stromberg!
-- 👀 I am Chef, parking at E3!!!
-- 🌱 I'm currently learning C # .NET
-- 💞️ I am looking for a job at ...
-- 📫 How to reach me mwf102.mw@gmail.com
+- 👀 I am Chef.. (I park at E3!!!)  <zuppel zuppel> -Läuft...
+- 🌱 I'm currently the most famous Manager of the Schadensregulierung at the Capitol Holding. (ähhhh: Bummsladen..)
+- 💞️ I am looking for a job on Mr. Nüüüübls secretary...
+- 📫 How to reach me: schirmchen@holding-capitol.de
