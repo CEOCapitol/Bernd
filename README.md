@@ -1,1 +1,5 @@
-# Bernd
+- 👋 Hello, I'm Bernd-, Bernd Stromberg!
+- 👀 I am Chef, parking at E3!!!
+- 🌱 I'm currently learning C # .NET
+- 💞️ I am looking for a job at ...
+- 📫 How to reach me mwf102.mw@gmail.com
